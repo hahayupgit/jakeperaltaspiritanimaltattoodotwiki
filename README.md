@@ -1,2 +1,2 @@
 # jakeperaltaspiritanimaltattoodotwiki
-[https://www.jakeperaltaspiritanimaltattoo.wiki](http://jakeperaltaspiritanimaltattoo.wiki/)
+[http://www.jakeperaltaspiritanimaltattoo.wiki](http://jakeperaltaspiritanimaltattoo.wiki/)
